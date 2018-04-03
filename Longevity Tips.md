@@ -23,5 +23,4 @@ But can you do if you cannot afford moving to one of those places? Here are a fe
 
 Have a happy and long live!!!
 
-![Old Couple Picture](old-couple.jpg)
-
+![Old Couple](https://i.imgur.com/eS5zUvh.jpg)
